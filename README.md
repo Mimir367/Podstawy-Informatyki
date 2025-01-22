@@ -1,2 +1,1 @@
 # Podstawy-Informatyki
-# Podstawy-Informatyki
